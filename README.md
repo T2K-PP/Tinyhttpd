@@ -95,7 +95,7 @@ mind?!?) use it, I would just be overjoyed to hear about it.  Please
 email me.  I probably won't really be releasing major updates, but if
 I help you learn something, I'd love to know!
 
-  Happy hacking!
+  Happy hacking!ok
 
                                    J. David Blackstone
 
